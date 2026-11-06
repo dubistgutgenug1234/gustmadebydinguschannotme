@@ -1,2 +1,2 @@
 # gustmadebydinguschannotme
-not by me
+not by me i just modified with ai
